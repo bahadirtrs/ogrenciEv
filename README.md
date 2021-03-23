@@ -1,0 +1,2 @@
+# ogrenciEvi
+# ogrenciEvi
